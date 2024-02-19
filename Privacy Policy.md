@@ -23,8 +23,7 @@ We reserve the right to update or change our Privacy Policy at any time. Any cha
 ## Contact Us
 
 If you have any questions about this Privacy Policy, please contact us via 
-[Oscar Chan](mailto:oscarChanNC@gmail.com?subject=[TAFE Privacy Policy Enquiry ]%20Source%20Han%20Sans)
-
+oscarChanNC@gmail.com
 ***
 
 Your privacy is of utmost importance to us, and we are committed to ensuring its protection.
